@@ -1,0 +1,1 @@
+# pbasisdata_pertemuan4_NadyaPratiwiRiswanto_IK2411049
